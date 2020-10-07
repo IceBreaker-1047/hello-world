@@ -1,4 +1,4 @@
 
-I am known as the truw champion.
+I am known as the true champion.
 
 I require no change.
